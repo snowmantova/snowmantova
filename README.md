@@ -1,5 +1,8 @@
  olaa, sou diogo mantoani 
 
+ 00001115690139sp@aluno.educacao.sp.gov.br
+
+
 sou estudante do ensino medio e uso alura por obrigação
 
 
